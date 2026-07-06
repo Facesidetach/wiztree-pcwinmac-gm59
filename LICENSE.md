@@ -1,4 +1,4 @@
-# 
+# Instant WizTree add-ons for Mac OS | Exclusive WizTree add-ons for PC Windows. Featuring cache clearing and custom themes — optimized for maximum performance on every platform.
 
 
 
